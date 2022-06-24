@@ -14,4 +14,11 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
+
+
+
+
+
+다른 곳에 내 소개를 
 -->
